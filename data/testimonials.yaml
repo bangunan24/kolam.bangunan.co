@@ -1,0 +1,54 @@
+testimonials:
+  - avatar: /images/admin/avatar1.png
+    name: Deni
+    message: >-
+      Layanan kolam.bangunan.co memuaskan, kolam terpal yang saya beli tahan
+      lama dan mudah dipasang.
+    response: Kami sangat menghargai kepercayaan Anda. Terima kasih
+    rating: 4
+  - avatar: /images/admin/avatar2.png
+    name: Ayu
+    message: >-
+      kolam.bangunan.co sangat membantu dalam memilih dimensi dan jenis kolam
+      terpal yang sesuai untuk usaha budidaya saya. Produk yang saya dapatkan
+      sangat baik dan sesuai dengan keperluan saya.
+    response: >-
+      Kami sangat menghargai ulasan Anda. Senang mendengar bahwa Anda puas
+      dengan kolam terpal dari kami.
+    rating: 5
+  - avatar: /images/admin/avatar3.png
+    name: Agus
+    message: >-
+      Saya sangat puas dengan kolam terpal dari kolam.bangunan.co. Pengirimannya
+      teratur dan kolamnya berkualitas tinggi.
+    response: >-
+      Terima kasih! Kami berkomitmen untuk menyediakan kolam terpal berkualitas
+      dengan layanan unggul.
+    rating: 4
+  - avatar: /images/admin/avatar4.png
+    name: Hendra
+    message: >-
+      Kolam terpal dari kolam.bangunan.co tahan lama dan sesuai dengan keperluan
+      budidaya ikan saya.
+    response: >-
+      Senang mendengar Anda puas dengan kolam terpal kami. Terima kasih atas
+      kepercayaannya!
+    rating: 4
+  - avatar: /images/admin/avatar5.png
+    name: Nur
+    message: >-
+      Saya senang dengan layanan dari kolam.bangunan.co. Kolam terpalnya
+      berkualitas dan sesuai dengan kebutuhan saya.
+    response: >-
+      Kami sangat menghargai ulasan Anda. Terima kasih telah mempercayakan
+      proyek Anda kepada kami!
+    rating: 4
+  - avatar: /images/admin/avatar6.png
+    name: Benny
+    message: >-
+      Kolam terpal dari kolam.bangunan.co sangat sesuai dengan kebutuhan proyek
+      budidaya ikan saya. Pengirimannya efisien dan rapi.
+    response: >-
+      Kami senang mendengar bahwa Anda puas dengan produk kolam terpal kami.
+      Terima kasih atas kepercayaannya!
+    rating: 4
