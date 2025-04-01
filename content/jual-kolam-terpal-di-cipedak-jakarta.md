@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cipedak Jakarta"
-date: "2024-04-12"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cipedak Jakarta. Itulah beberapa info yg bisa kami jelaskan perihal Jual Kolam Terpal di Cipedak Jakarta. Apabila diantara anda ada yang..."
+title: Jual Kolam Terpal di Cipedak Jakarta
+date: '2025-04-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cipedak Jakarta. Itulah beberapa info yg bisa kami
+  jelaskan perihal Jual Kolam Terpal di Cipedak Jakarta. Apabila diantara anda
+  ada yang...
 ---
 
 **Jual Kolam Terpal di Cipedak Jakarta** – Kolam ikan adalah salah satu tempat untuk penampungan ikan air tawar yang dapat hidup sesuai rencana. Kolam ikan terbagi menjadi 2 tipe yakni kolam ikan segera dari tanah dan kolam ikan terpal. Keduanya memiliki manfaat yg mirip untuk melakukan pemeliharaan ikan air tawar.

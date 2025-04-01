@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Karangbahagia Bekasi"
-date: "2024-04-10"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Karangbahagia Bekasi. Seperti itulah beberapa pemaparan yg mampu kami sampaikan tentang Jual Kolam Terpal di Karangbahagia Bekasi. Apabi..."
+title: Jual Kolam Terpal di Karangbahagia Bekasi
+date: '2025-04-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Karangbahagia Bekasi. Seperti itulah beberapa pemaparan
+  yg mampu kami sampaikan tentang Jual Kolam Terpal di Karangbahagia Bekasi.
+  Apabi...
 ---
 
 **Jual Kolam Terpal di Karangbahagia Bekasi** – Kolam ikan yaitu beberapa area untuk penampungan ikan air tawar yg dapat hidup sesuai rencana. Kolam ikan terbagi menjadi 2 macam yaitu kolam ikan segera dari tanah dan kolam ikan terpal. Keduanya punyai fungsi yang sama untuk melaksanakan pemeliharaan ikan air tawar.

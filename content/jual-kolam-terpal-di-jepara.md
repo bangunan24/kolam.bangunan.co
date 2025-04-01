@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Jepara"
-date: "2024-04-13"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Jepara. Itulah beberapa informasi yang dapat kami sampaikan mengenai Jual Kolam Terpal di Jepara. Mungkin diantara anda ada yg sedang me..."
+title: Jual Kolam Terpal di Jepara
+date: '2025-04-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Jepara. Itulah beberapa informasi yang dapat kami
+  sampaikan mengenai Jual Kolam Terpal di Jepara. Mungkin diantara anda ada yg
+  sedang me...
 ---
 
 **Jual Kolam Terpal di Jepara** – Kolam ikan yakni salah satu lokasi untuk penampungan ikan air tawar yg dapat hidup dengan mudah. Kolam ikan terbagi menjadi dua tipe yaitu kolam ikan langsung dari lahan dan kolam ikan terpal. Keduanya miliki kegunaan yg mirip untuk jalankan pemeliharaan ikan air tawar.

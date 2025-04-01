@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Bangka Jakarta"
-date: "2024-04-24"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Bangka Jakarta. Seperti itulah sebagian penjelasan yang mampu kami jelaskan perihal Jual Kolam Terpal di Bangka Jakarta. Mungkin diantar..."
+title: Jual Kolam Terpal di Bangka Jakarta
+date: '2025-04-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Bangka Jakarta. Seperti itulah sebagian penjelasan yang
+  mampu kami jelaskan perihal Jual Kolam Terpal di Bangka Jakarta. Mungkin
+  diantar...
 ---
 
 **Jual Kolam Terpal di Bangka Jakarta** – Kolam ikan yakni beberapa area untuk penampungan ikan air tawar yang bisa hidup dg mudah. Kolam ikan terbagi jadi 2 tipe yaitu kolam ikan segera dr daerah dan kolam ikan terpal. Keduanya memiliki fungsi yang serupa untuk lakukan pemeliharaan ikan air tawar.

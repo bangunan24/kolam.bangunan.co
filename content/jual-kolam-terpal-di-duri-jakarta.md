@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Duri Jakarta"
-date: "2024-04-09"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Duri Jakarta. Itulah beberapa penjelasan yang dapat kami sampaikan mengenai Jual Kolam Terpal di Duri Jakarta. Jika diantara anda ada yg..."
+title: Jual Kolam Terpal di Duri Jakarta
+date: '2025-04-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Duri Jakarta. Itulah beberapa penjelasan yang dapat kami
+  sampaikan mengenai Jual Kolam Terpal di Duri Jakarta. Jika diantara anda ada
+  yg...
 ---
 
 **Jual Kolam Terpal di Duri Jakarta** – Kolam ikan yaitu salah satu area untuk penampungan ikan air tawar yang mampu hidup sesuai rencana. Kolam ikan terbagi menjadi 2 macam yakni kolam ikan segera dari tanah dan kolam ikan terpal. Keduanya miliki kegunaan yang sama untuk melakukan pemeliharaan ikan air tawar.

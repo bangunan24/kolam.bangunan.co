@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cilangkap Jakarta"
-date: "2024-04-22"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cilangkap Jakarta. Itulah beberapa informasi yang dapat kami sampaikan perihal Jual Kolam Terpal di Cilangkap Jakarta. Apabila diantara..."
+title: Jual Kolam Terpal di Cilangkap Jakarta
+date: '2025-04-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cilangkap Jakarta. Itulah beberapa informasi yang dapat
+  kami sampaikan perihal Jual Kolam Terpal di Cilangkap Jakarta. Apabila
+  diantara...
 ---
 
 **Jual Kolam Terpal di Cilangkap Jakarta** – Kolam ikan adalah beberapa tempat untuk penampungan ikan air tawar yg bisa hidup dengan mudah. Kolam ikan terbagi menjadi dua tipe yaitu kolam ikan segera dari tanah dan kolam ikan terpal. Keduanya memiliki kegunaan yg serupa untuk lakukan pemeliharaan ikan air tawar.

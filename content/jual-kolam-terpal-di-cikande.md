@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cikande"
-date: "2024-04-11"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cikande. Itulah beberapa informasi yang bisa kami sampaikan tentang Jual Kolam Terpal di Cikande. Jika diantara anda ada yang sedang mem..."
+title: Jual Kolam Terpal di Cikande
+date: '2025-04-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cikande. Itulah beberapa informasi yang bisa kami
+  sampaikan tentang Jual Kolam Terpal di Cikande. Jika diantara anda ada yang
+  sedang mem...
 ---
 
 **Jual Kolam Terpal di Cikande** – Kolam ikan adalah salah satu tempat untuk penampungan ikan air tawar yg dapat hidup sesuai pesanan. Kolam ikan terbagi menjadi dua jenis yaitu kolam ikan langsung dr lahan dan kolam ikan terpal. Keduanya memiliki fungsi yg sama untuk laksanakan pemeliharaan ikan air tawar.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kalisari Jakarta"
-date: "2024-04-12"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kalisari Jakarta. Demikian sebagian info yang bisa kami sampaikan perihal Jual Kolam Terpal di Kalisari Jakarta. Mungkin diantara anda a..."
+title: Jual Kolam Terpal di Kalisari Jakarta
+date: '2025-04-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kalisari Jakarta. Demikian sebagian info yang bisa kami
+  sampaikan perihal Jual Kolam Terpal di Kalisari Jakarta. Mungkin diantara anda
+  a...
 ---
 
 **Jual Kolam Terpal di Kalisari Jakarta** – Kolam ikan yakni salah satu tempat untuk penampungan ikan air tawar yang bisa hidup sesuai pesanan. Kolam ikan terbagi jadi dua jenis yaitu kolam ikan langsung dr tanah dan kolam ikan terpal. Keduanya memiliki fungsi yg sama untuk jalankan pemeliharaan ikan air tawar.
