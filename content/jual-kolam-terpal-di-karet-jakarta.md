@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Karet Jakarta"
-date: "2024-05-19"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Karet Jakarta. Seperti itulah sebagian informasi yg mampu kami rincikan perihal Jual Kolam Terpal di Karet Jakarta. Jika diantara anda a..."
+title: Jual Kolam Terpal di Karet Jakarta
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Karet Jakarta. Seperti itulah sebagian informasi yg mampu
+  kami rincikan perihal Jual Kolam Terpal di Karet Jakarta. Jika diantara anda
+  a...
 ---
 
 **Jual Kolam Terpal di Karet Jakarta** – Kolam ikan yakni satu-satunya area untuk penampungan ikan air tawar yg bisa hidup sesuai pesanan. Kolam ikan terbagi menjadi dua jenis yaitu kolam ikan langsung dari daerah dan kolam ikan terpal. Keduanya memiliki fungsi yang serupa untuk melaksanakan pemeliharaan ikan air tawar.

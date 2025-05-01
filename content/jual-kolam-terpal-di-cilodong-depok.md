@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cilodong Depok"
-date: "2024-05-01"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cilodong Depok. Demikian sebagian info yang mampu kami uraikan mengenai Jual Kolam Terpal di Cilodong Depok. Mungkin diantara anda ada y..."
+title: Jual Kolam Terpal di Cilodong Depok
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cilodong Depok. Demikian sebagian info yang mampu kami
+  uraikan mengenai Jual Kolam Terpal di Cilodong Depok. Mungkin diantara anda
+  ada y...
 ---
 
 **Jual Kolam Terpal di Cilodong Depok** – Kolam ikan yaitu satu-satunya area untuk penampungan ikan air tawar yg dapat hidup sesuai pesanan. Kolam ikan terbagi jadi 2 jenis yakni kolam ikan langsung dr lahan dan kolam ikan terpal. Keduanya mempunyai kegunaan yang serupa untuk melaksanakan pemeliharaan ikan air tawar.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Glodok Jakarta"
-date: "2024-05-24"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Glodok Jakarta. Seperti itulah beberapa uraian yg dapat kami uraikan tentang Jual Kolam Terpal di Glodok Jakarta. Apabila diantara anda..."
+title: Jual Kolam Terpal di Glodok Jakarta
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Glodok Jakarta. Seperti itulah beberapa uraian yg dapat
+  kami uraikan tentang Jual Kolam Terpal di Glodok Jakarta. Apabila diantara
+  anda...
 ---
 
 **Jual Kolam Terpal di Glodok Jakarta** – Kolam ikan ialah beberapa area untuk penampungan ikan air tawar yang mampu hidup akan sesuai keinginan. Kolam ikan terbagi menjadi dua jenis yaitu kolam ikan langsung dr tanah dan kolam ikan terpal. Keduanya mempunyai fungsi yg sama untuk jalankan pemeliharaan ikan air tawar.

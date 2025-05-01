@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Babakan Bogor"
-date: "2024-05-09"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Babakan Bogor. Demikian beberapa informasi yang dapat kami sampaikan tentang Jual Kolam Terpal di Babakan Bogor. Jika diantara anda ada..."
+title: Jual Kolam Terpal di Babakan Bogor
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Babakan Bogor. Demikian beberapa informasi yang dapat
+  kami sampaikan tentang Jual Kolam Terpal di Babakan Bogor. Jika diantara anda
+  ada...
 ---
 
 **Jual Kolam Terpal di Babakan Bogor** – Kolam ikan ialah salah satu area untuk penampungan ikan air tawar yang bisa hidup dg mudah. Kolam ikan terbagi menjadi 2 tipe yakni kolam ikan langsung dari daerah dan kolam ikan terpal. Keduanya punya manfaat yang sama untuk laksanakan pemeliharaan ikan air tawar.

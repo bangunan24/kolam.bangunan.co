@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cakung Jakarta"
-date: "2024-05-02"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cakung Jakarta. Seperti itulah beberapa uraian yang dapat kami uraikan perihal Jual Kolam Terpal di Cakung Jakarta. Mungkin diantara and..."
+title: Jual Kolam Terpal di Cakung Jakarta
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cakung Jakarta. Seperti itulah beberapa uraian yang dapat
+  kami uraikan perihal Jual Kolam Terpal di Cakung Jakarta. Mungkin diantara
+  and...
 ---
 
 **Jual Kolam Terpal di Cakung Jakarta** – Kolam ikan yaitu salah satu tempat untuk penampungan ikan air tawar yang mampu hidup sesuai rencana. Kolam ikan terbagi jadi 2 tipe yaitu kolam ikan segera dr tanah dan kolam ikan terpal. Keduanya memiliki fungsi yang serupa untuk jalankan pemeliharaan ikan air tawar.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Koba"
-date: "2024-05-03"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Koba. Demikian sebagian info yg dapat kami jelaskan perihal Jual Kolam Terpal di Koba. Apabila diantara anda ada yg sedang memerlukan pr..."
+title: Jual Kolam Terpal di Koba
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Koba. Demikian sebagian info yg dapat kami jelaskan
+  perihal Jual Kolam Terpal di Koba. Apabila diantara anda ada yg sedang
+  memerlukan pr...
 ---
 
 **Jual Kolam Terpal di Koba** – Kolam ikan adalah beberapa lokasi untuk penampungan ikan air tawar yg dapat hidup sesuai pesanan. Kolam ikan terbagi jadi 2 tipe yakni kolam ikan langsung dari lahan dan kolam ikan terpal. Keduanya mempunyai kegunaan yg mirip untuk lakukan pemeliharaan ikan air tawar.

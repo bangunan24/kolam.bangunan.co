@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Empang Bogor"
-date: "2024-05-18"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Empang Bogor. Demikian sebagian informasi yang dapat kami jelaskan tentang Jual Kolam Terpal di Empang Bogor. Apabila diantara anda ada..."
+title: Jual Kolam Terpal di Empang Bogor
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Empang Bogor. Demikian sebagian informasi yang dapat kami
+  jelaskan tentang Jual Kolam Terpal di Empang Bogor. Apabila diantara anda
+  ada...
 ---
 
 **Jual Kolam Terpal di Empang Bogor** – Kolam ikan yakni beberapa tempat untuk penampungan ikan air tawar yang mampu hidup dg mudah. Kolam ikan terbagi menjadi dua macam yakni kolam ikan langsung dr lahan dan kolam ikan terpal. Keduanya miliki fungsi yang sama untuk lakukan pemeliharaan ikan air tawar.

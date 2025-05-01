@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Bukit Duri Jakarta"
-date: "2024-05-13"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Bukit Duri Jakarta. Itulah sebagian informasi yang mampu kami uraikan perihal Jual Kolam Terpal di Bukit Duri Jakarta. Jika diantara and..."
+title: Jual Kolam Terpal di Bukit Duri Jakarta
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Bukit Duri Jakarta. Itulah sebagian informasi yang mampu
+  kami uraikan perihal Jual Kolam Terpal di Bukit Duri Jakarta. Jika diantara
+  and...
 ---
 
 **Jual Kolam Terpal di Bukit Duri Jakarta** – Kolam ikan ialah beberapa lokasi untuk penampungan ikan air tawar yang mampu hidup sesuai rencana. Kolam ikan terbagi menjadi 2 tipe yaitu kolam ikan segera dari tanah dan kolam ikan terpal. Keduanya punya manfaat yg sama untuk melaksanakan pemeliharaan ikan air tawar.

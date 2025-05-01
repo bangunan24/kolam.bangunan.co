@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kediri"
-date: "2024-05-18"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kediri. Seperti itulah beberapa info yg dapat kami jelaskan mengenai Jual Kolam Terpal di Kediri. Apabila diantara anda ada yang sedang..."
+title: Jual Kolam Terpal di Kediri
+date: '2025-05-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kediri. Seperti itulah beberapa info yg dapat kami
+  jelaskan mengenai Jual Kolam Terpal di Kediri. Apabila diantara anda ada yang
+  sedang...
 ---
 
 **Jual Kolam Terpal di Kediri** – Kolam ikan ialah salah satu area untuk penampungan ikan air tawar yang mampu hidup sesuai rencana. Kolam ikan terbagi menjadi dua tipe yaitu kolam ikan langsung dr tanah dan kolam ikan terpal. Keduanya punyai manfaat yg serupa untuk melaksanakan pemeliharaan ikan air tawar.
