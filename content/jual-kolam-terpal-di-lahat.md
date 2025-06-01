@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Lahat"
-date: "2024-06-04"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Lahat. Itulah beberapa penjelasan yg mampu kami jelaskan mengenai Jual Kolam Terpal di Lahat. Mungkin diantara anda ada yg sedang membut..."
+title: Jual Kolam Terpal di Lahat
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Lahat. Itulah beberapa penjelasan yg mampu kami jelaskan
+  mengenai Jual Kolam Terpal di Lahat. Mungkin diantara anda ada yg sedang
+  membut...
 ---
 
 **Jual Kolam Terpal di Lahat** – Kolam ikan yaitu satu-satunya lokasi untuk penampungan ikan air tawar yang bisa hidup dengan mudah. Kolam ikan terbagi jadi dua macam yakni kolam ikan langsung dr tanah dan kolam ikan terpal. Keduanya memiliki kegunaan yg mirip untuk laksanakan pemeliharaan ikan air tawar.

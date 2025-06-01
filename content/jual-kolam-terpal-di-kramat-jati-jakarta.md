@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kramat jati Jakarta"
-date: "2024-06-20"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kramat jati Jakarta. Seperti itulah beberapa penjelasan yg bisa kami rincikan mengenai Jual Kolam Terpal di Kramat jati Jakarta. Jika di..."
+title: Jual Kolam Terpal di Kramat jati Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kramat jati Jakarta. Seperti itulah beberapa penjelasan
+  yg bisa kami rincikan mengenai Jual Kolam Terpal di Kramat jati Jakarta. Jika
+  di...
 ---
 
 **Jual Kolam Terpal di Kramat jati Jakarta** – Kolam ikan ialah beberapa area untuk penampungan ikan air tawar yg bisa hidup sesuai rencana. Kolam ikan terbagi menjadi 2 macam yakni kolam ikan segera dr daerah dan kolam ikan terpal. Keduanya miliki kegunaan yg sama untuk melaksanakan pemeliharaan ikan air tawar.

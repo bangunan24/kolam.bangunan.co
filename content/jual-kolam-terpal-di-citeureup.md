@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Citeureup"
-date: "2024-06-08"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Citeureup. Itulah sebagian penjelasan yg bisa kami jelaskan perihal Jual Kolam Terpal di Citeureup. Jika diantara anda ada yg sedang mem..."
+title: Jual Kolam Terpal di Citeureup
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Citeureup. Itulah sebagian penjelasan yg bisa kami
+  jelaskan perihal Jual Kolam Terpal di Citeureup. Jika diantara anda ada yg
+  sedang mem...
 ---
 
 **Jual Kolam Terpal di Citeureup** – Kolam ikan ialah salah satu tempat untuk penampungan ikan air tawar yang dapat hidup sesuai pesanan. Kolam ikan terbagi jadi dua tipe yakni kolam ikan langsung dr daerah dan kolam ikan terpal. Keduanya mempunyai kegunaan yg mirip untuk melakukan pemeliharaan ikan air tawar.

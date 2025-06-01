@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Harjamukti Depok"
-date: "2024-06-22"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Harjamukti Depok. Itulah sebagian info yg mampu kami uraikan tentang Jual Kolam Terpal di Harjamukti Depok. Jika diantara anda ada yg se..."
+title: Jual Kolam Terpal di Harjamukti Depok
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Harjamukti Depok. Itulah sebagian info yg mampu kami
+  uraikan tentang Jual Kolam Terpal di Harjamukti Depok. Jika diantara anda ada
+  yg se...
 ---
 
 **Jual Kolam Terpal di Harjamukti Depok** – Kolam ikan adalah satu-satunya tempat untuk penampungan ikan air tawar yang dapat hidup akan sesuai keinginan. Kolam ikan terbagi menjadi 2 tipe yakni kolam ikan langsung dari tanah dan kolam ikan terpal. Keduanya punyai fungsi yg mirip untuk lakukan pemeliharaan ikan air tawar.

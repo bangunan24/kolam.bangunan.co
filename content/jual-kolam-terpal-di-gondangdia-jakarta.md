@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Gondangdia Jakarta"
-date: "2024-06-24"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Gondangdia Jakarta. Seperti itulah sebagian info yg bisa kami sampaikan perihal Jual Kolam Terpal di Gondangdia Jakarta. Jika diantara a..."
+title: Jual Kolam Terpal di Gondangdia Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Gondangdia Jakarta. Seperti itulah sebagian info yg bisa
+  kami sampaikan perihal Jual Kolam Terpal di Gondangdia Jakarta. Jika diantara
+  a...
 ---
 
 **Jual Kolam Terpal di Gondangdia Jakarta** – Kolam ikan yakni satu-satunya lokasi untuk penampungan ikan air tawar yg bisa hidup akan sesuai keinginan. Kolam ikan terbagi jadi dua jenis yakni kolam ikan segera dr lahan dan kolam ikan terpal. Keduanya punyai fungsi yg mirip untuk melakukan pemeliharaan ikan air tawar.

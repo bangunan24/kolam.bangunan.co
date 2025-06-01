@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kampung Bali Jakarta"
-date: "2024-06-04"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kampung Bali Jakarta. Itulah beberapa penjelasan yg mampu kami sampaikan mengenai Jual Kolam Terpal di Kampung Bali Jakarta. Apabila dia..."
+title: Jual Kolam Terpal di Kampung Bali Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kampung Bali Jakarta. Itulah beberapa penjelasan yg mampu
+  kami sampaikan mengenai Jual Kolam Terpal di Kampung Bali Jakarta. Apabila
+  dia...
 ---
 
 **Jual Kolam Terpal di Kampung Bali Jakarta** – Kolam ikan adalah beberapa area untuk penampungan ikan air tawar yang dapat hidup dengan mudah. Kolam ikan terbagi jadi dua tipe yaitu kolam ikan segera dr lahan dan kolam ikan terpal. Keduanya punya fungsi yg sama untuk laksanakan pemeliharaan ikan air tawar.

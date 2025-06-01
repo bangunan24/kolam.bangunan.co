@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Bantar Gebang Bekasi"
-date: "2024-06-17"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Bantar Gebang Bekasi. Itulah beberapa info yang mampu kami rincikan perihal Jual Kolam Terpal di Bantar Gebang Bekasi. Apabila diantara..."
+title: Jual Kolam Terpal di Bantar Gebang Bekasi
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Bantar Gebang Bekasi. Itulah beberapa info yang mampu
+  kami rincikan perihal Jual Kolam Terpal di Bantar Gebang Bekasi. Apabila
+  diantara...
 ---
 
 **Jual Kolam Terpal di Bantar Gebang Bekasi** – Kolam ikan adalah satu-satunya area untuk penampungan ikan air tawar yang bisa hidup sesuai rencana. Kolam ikan terbagi menjadi 2 tipe yakni kolam ikan langsung dr lahan dan kolam ikan terpal. Keduanya mempunyai manfaat yang sama untuk lakukan pemeliharaan ikan air tawar.

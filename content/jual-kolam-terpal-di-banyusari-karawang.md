@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Banyusari Karawang"
-date: "2024-06-15"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Banyusari Karawang. Seperti itulah sebagian informasi yang bisa kami jelaskan perihal Jual Kolam Terpal di Banyusari Karawang. Apabila d..."
+title: Jual Kolam Terpal di Banyusari Karawang
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Banyusari Karawang. Seperti itulah sebagian informasi
+  yang bisa kami jelaskan perihal Jual Kolam Terpal di Banyusari Karawang.
+  Apabila d...
 ---
 
 **Jual Kolam Terpal di Banyusari Karawang** – Kolam ikan yakni beberapa lokasi untuk penampungan ikan air tawar yg dapat hidup sesuai rencana. Kolam ikan terbagi menjadi dua macam yakni kolam ikan segera dr lahan dan kolam ikan terpal. Keduanya punya kegunaan yg mirip untuk laksanakan pemeliharaan ikan air tawar.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Karangmalang"
-date: "2024-06-14"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Karangmalang. Itulah sebagian uraian yang bisa kami uraikan perihal Jual Kolam Terpal di Karangmalang. Apabila diantara anda ada yg seda..."
+title: Jual Kolam Terpal di Karangmalang
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Karangmalang. Itulah sebagian uraian yang bisa kami
+  uraikan perihal Jual Kolam Terpal di Karangmalang. Apabila diantara anda ada
+  yg seda...
 ---
 
 **Jual Kolam Terpal di Karangmalang** – Kolam ikan yakni satu-satunya tempat untuk penampungan ikan air tawar yg bisa hidup dg mudah. Kolam ikan terbagi jadi 2 tipe yakni kolam ikan segera dr daerah dan kolam ikan terpal. Keduanya punyai fungsi yg mirip untuk jalankan pemeliharaan ikan air tawar.

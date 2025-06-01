@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Jatisari Karawang"
-date: "2024-06-18"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Jatisari Karawang. Itulah sebagian pemaparan yg dapat kami jelaskan tentang Jual Kolam Terpal di Jatisari Karawang. Apabila diantara and..."
+title: Jual Kolam Terpal di Jatisari Karawang
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Jatisari Karawang. Itulah sebagian pemaparan yg dapat
+  kami jelaskan tentang Jual Kolam Terpal di Jatisari Karawang. Apabila diantara
+  and...
 ---
 
 **Jual Kolam Terpal di Jatisari Karawang** – Kolam ikan adalah salah satu tempat untuk penampungan ikan air tawar yg dapat hidup akan sesuai keinginan. Kolam ikan terbagi menjadi dua tipe yakni kolam ikan segera dr daerah dan kolam ikan terpal. Keduanya mempunyai manfaat yg sama untuk jalankan pemeliharaan ikan air tawar.

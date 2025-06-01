@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Koja Jakarta"
-date: "2024-06-26"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Koja Jakarta. Seperti itulah sebagian pemaparan yang dapat kami jelaskan mengenai Jual Kolam Terpal di Koja Jakarta. Jika diantara anda..."
+title: Jual Kolam Terpal di Koja Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Koja Jakarta. Seperti itulah sebagian pemaparan yang
+  dapat kami jelaskan mengenai Jual Kolam Terpal di Koja Jakarta. Jika diantara
+  anda...
 ---
 
 **Jual Kolam Terpal di Koja Jakarta** – Kolam ikan ialah salah satu tempat untuk penampungan ikan air tawar yang mampu hidup sesuai rencana. Kolam ikan terbagi menjadi 2 jenis yaitu kolam ikan segera dr lahan dan kolam ikan terpal. Keduanya miliki fungsi yang sama untuk melakukan pemeliharaan ikan air tawar.

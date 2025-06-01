@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Gianyar"
-date: "2024-06-22"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Gianyar. Itulah beberapa pemaparan yg bisa kami jelaskan perihal Jual Kolam Terpal di Gianyar. Apabila diantara anda ada yang sedang mem..."
+title: Jual Kolam Terpal di Gianyar
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Gianyar. Itulah beberapa pemaparan yg bisa kami jelaskan
+  perihal Jual Kolam Terpal di Gianyar. Apabila diantara anda ada yang sedang
+  mem...
 ---
 
 **Jual Kolam Terpal di Gianyar** – Kolam ikan yakni salah satu lokasi untuk penampungan ikan air tawar yg bisa hidup akan sesuai keinginan. Kolam ikan terbagi jadi dua macam yakni kolam ikan langsung dari lahan dan kolam ikan terpal. Keduanya miliki fungsi yg sama untuk melaksanakan pemeliharaan ikan air tawar.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Jatiasih Bekasi"
-date: "2024-06-04"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Jatiasih Bekasi. Demikian sebagian uraian yg bisa kami rincikan perihal Jual Kolam Terpal di Jatiasih Bekasi. Mungkin diantara anda ada..."
+title: Jual Kolam Terpal di Jatiasih Bekasi
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Jatiasih Bekasi. Demikian sebagian uraian yg bisa kami
+  rincikan perihal Jual Kolam Terpal di Jatiasih Bekasi. Mungkin diantara anda
+  ada...
 ---
 
 **Jual Kolam Terpal di Jatiasih Bekasi** – Kolam ikan adalah satu-satunya area untuk penampungan ikan air tawar yg bisa hidup akan sesuai keinginan. Kolam ikan terbagi jadi dua macam yaitu kolam ikan langsung dr tanah dan kolam ikan terpal. Keduanya punyai manfaat yang mirip untuk lakukan pemeliharaan ikan air tawar.

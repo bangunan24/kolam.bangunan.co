@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cempaka Jakarta"
-date: "2024-06-14"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cempaka Jakarta. Seperti itulah sebagian uraian yang dapat kami sampaikan tentang Jual Kolam Terpal di Cempaka Jakarta. Apabila diantara..."
+title: Jual Kolam Terpal di Cempaka Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cempaka Jakarta. Seperti itulah sebagian uraian yang
+  dapat kami sampaikan tentang Jual Kolam Terpal di Cempaka Jakarta. Apabila
+  diantara...
 ---
 
 **Jual Kolam Terpal di Cempaka Jakarta** – Kolam ikan yakni beberapa tempat untuk penampungan ikan air tawar yg mampu hidup dg mudah. Kolam ikan terbagi menjadi dua jenis yakni kolam ikan langsung dr tanah dan kolam ikan terpal. Keduanya punya kegunaan yg sama untuk laksanakan pemeliharaan ikan air tawar.

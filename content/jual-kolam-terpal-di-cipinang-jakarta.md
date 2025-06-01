@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cipinang Jakarta"
-date: "2024-06-11"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cipinang Jakarta. Demikian beberapa info yang dapat kami uraikan perihal Jual Kolam Terpal di Cipinang Jakarta. Jika diantara anda ada y..."
+title: Jual Kolam Terpal di Cipinang Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cipinang Jakarta. Demikian beberapa info yang dapat kami
+  uraikan perihal Jual Kolam Terpal di Cipinang Jakarta. Jika diantara anda ada
+  y...
 ---
 
 **Jual Kolam Terpal di Cipinang Jakarta** – Kolam ikan yaitu beberapa tempat untuk penampungan ikan air tawar yang bisa hidup akan sesuai keinginan. Kolam ikan terbagi jadi 2 tipe yaitu kolam ikan langsung dr lahan dan kolam ikan terpal. Keduanya punya fungsi yang serupa untuk laksanakan pemeliharaan ikan air tawar.

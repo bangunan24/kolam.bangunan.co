@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Garut"
-date: "2024-06-11"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Garut. Demikian beberapa penjelasan yang dapat kami jelaskan perihal Jual Kolam Terpal di Garut. Jika diantara anda ada yg sedang memerl..."
+title: Jual Kolam Terpal di Garut
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Garut. Demikian beberapa penjelasan yang dapat kami
+  jelaskan perihal Jual Kolam Terpal di Garut. Jika diantara anda ada yg sedang
+  memerl...
 ---
 
 **Jual Kolam Terpal di Garut** – Kolam ikan yaitu satu-satunya tempat untuk penampungan ikan air tawar yang mampu hidup dengan mudah. Kolam ikan terbagi jadi dua tipe yaitu kolam ikan segera dr tanah dan kolam ikan terpal. Keduanya miliki fungsi yang serupa untuk jalankan pemeliharaan ikan air tawar.

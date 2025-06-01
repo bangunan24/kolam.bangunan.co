@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cikampek Karawang"
-date: "2024-06-15"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cikampek Karawang. Demikian sebagian info yang dapat kami rincikan mengenai Jual Kolam Terpal di Cikampek Karawang. Apabila diantara and..."
+title: Jual Kolam Terpal di Cikampek Karawang
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cikampek Karawang. Demikian sebagian info yang dapat kami
+  rincikan mengenai Jual Kolam Terpal di Cikampek Karawang. Apabila diantara
+  and...
 ---
 
 **Jual Kolam Terpal di Cikampek Karawang** – Kolam ikan ialah beberapa lokasi untuk penampungan ikan air tawar yang mampu hidup akan sesuai keinginan. Kolam ikan terbagi menjadi dua tipe yakni kolam ikan langsung dari tanah dan kolam ikan terpal. Keduanya mempunyai faedah yang sama untuk melakukan pemeliharaan ikan air tawar.

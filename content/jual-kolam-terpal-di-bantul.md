@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Bantul"
-date: "2024-06-10"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Bantul. Seperti itulah beberapa uraian yang dapat kami jelaskan perihal Jual Kolam Terpal di Bantul. Apabila diantara anda ada yg sedang..."
+title: Jual Kolam Terpal di Bantul
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Bantul. Seperti itulah beberapa uraian yang dapat kami
+  jelaskan perihal Jual Kolam Terpal di Bantul. Apabila diantara anda ada yg
+  sedang...
 ---
 
 **Jual Kolam Terpal di Bantul** – Kolam ikan adalah salah satu lokasi untuk penampungan ikan air tawar yg mampu hidup dg mudah. Kolam ikan terbagi jadi dua tipe yakni kolam ikan segera dari daerah dan kolam ikan terpal. Keduanya miliki fungsi yg mirip untuk melaksanakan pemeliharaan ikan air tawar.

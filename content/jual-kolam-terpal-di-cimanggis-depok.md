@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cimanggis Depok"
-date: "2024-06-23"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cimanggis Depok. Demikian sebagian informasi yang bisa kami uraikan mengenai Jual Kolam Terpal di Cimanggis Depok. Apabila diantara anda..."
+title: Jual Kolam Terpal di Cimanggis Depok
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cimanggis Depok. Demikian sebagian informasi yang bisa
+  kami uraikan mengenai Jual Kolam Terpal di Cimanggis Depok. Apabila diantara
+  anda...
 ---
 
 **Jual Kolam Terpal di Cimanggis Depok** – Kolam ikan yaitu satu-satunya area untuk penampungan ikan air tawar yg mampu hidup sesuai rencana. Kolam ikan terbagi menjadi dua jenis yakni kolam ikan segera dr tanah dan kolam ikan terpal. Keduanya miliki fungsi yang serupa untuk jalankan pemeliharaan ikan air tawar.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kalibata Jakarta"
-date: "2024-06-13"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kalibata Jakarta. Demikian beberapa informasi yg mampu kami uraikan tentang Jual Kolam Terpal di Kalibata Jakarta. Apabila diantara anda..."
+title: Jual Kolam Terpal di Kalibata Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kalibata Jakarta. Demikian beberapa informasi yg mampu
+  kami uraikan tentang Jual Kolam Terpal di Kalibata Jakarta. Apabila diantara
+  anda...
 ---
 
 **Jual Kolam Terpal di Kalibata Jakarta** – Kolam ikan adalah salah satu lokasi untuk penampungan ikan air tawar yang dapat hidup sesuai rencana. Kolam ikan terbagi jadi dua macam yaitu kolam ikan langsung dari lahan dan kolam ikan terpal. Keduanya mempunyai kegunaan yang mirip untuk lakukan pemeliharaan ikan air tawar.

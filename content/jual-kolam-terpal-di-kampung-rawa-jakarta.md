@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kampung Rawa Jakarta"
-date: "2024-06-11"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kampung Rawa Jakarta. Itulah beberapa informasi yang mampu kami sampaikan tentang Jual Kolam Terpal di Kampung Rawa Jakarta. Jika dianta..."
+title: Jual Kolam Terpal di Kampung Rawa Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kampung Rawa Jakarta. Itulah beberapa informasi yang
+  mampu kami sampaikan tentang Jual Kolam Terpal di Kampung Rawa Jakarta. Jika
+  dianta...
 ---
 
 **Jual Kolam Terpal di Kampung Rawa Jakarta** – Kolam ikan yakni satu-satunya area untuk penampungan ikan air tawar yg dapat hidup sesuai rencana. Kolam ikan terbagi jadi 2 tipe yaitu kolam ikan langsung dari daerah dan kolam ikan terpal. Keduanya punyai manfaat yang serupa untuk laksanakan pemeliharaan ikan air tawar.

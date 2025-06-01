@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cianjur"
-date: "2024-06-04"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cianjur. Seperti itulah sebagian info yang bisa kami sampaikan tentang Jual Kolam Terpal di Cianjur. Apabila diantara anda ada yang seda..."
+title: Jual Kolam Terpal di Cianjur
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cianjur. Seperti itulah sebagian info yang bisa kami
+  sampaikan tentang Jual Kolam Terpal di Cianjur. Apabila diantara anda ada yang
+  seda...
 ---
 
 **Jual Kolam Terpal di Cianjur** – Kolam ikan yakni salah satu area untuk penampungan ikan air tawar yang mampu hidup sesuai rencana. Kolam ikan terbagi jadi 2 jenis yaitu kolam ikan segera dr lahan dan kolam ikan terpal. Keduanya memiliki fungsi yg mirip untuk melaksanakan pemeliharaan ikan air tawar.

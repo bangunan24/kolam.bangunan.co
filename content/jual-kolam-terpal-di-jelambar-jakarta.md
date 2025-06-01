@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Jelambar Jakarta"
-date: "2024-06-23"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Jelambar Jakarta. Itulah beberapa informasi yang bisa kami jelaskan tentang Jual Kolam Terpal di Jelambar Jakarta. Apabila diantara anda..."
+title: Jual Kolam Terpal di Jelambar Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Jelambar Jakarta. Itulah beberapa informasi yang bisa
+  kami jelaskan tentang Jual Kolam Terpal di Jelambar Jakarta. Apabila diantara
+  anda...
 ---
 
 **Jual Kolam Terpal di Jelambar Jakarta** – Kolam ikan yakni satu-satunya lokasi untuk penampungan ikan air tawar yg bisa hidup dengan mudah. Kolam ikan terbagi jadi 2 tipe yakni kolam ikan langsung dari lahan dan kolam ikan terpal. Keduanya miliki fungsi yg sama untuk melaksanakan pemeliharaan ikan air tawar.

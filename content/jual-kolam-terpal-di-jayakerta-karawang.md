@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Jayakerta Karawang"
-date: "2024-06-15"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Jayakerta Karawang. Demikian sebagian info yang mampu kami sampaikan mengenai Jual Kolam Terpal di Jayakerta Karawang. Apabila diantara..."
+title: Jual Kolam Terpal di Jayakerta Karawang
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Jayakerta Karawang. Demikian sebagian info yang mampu
+  kami sampaikan mengenai Jual Kolam Terpal di Jayakerta Karawang. Apabila
+  diantara...
 ---
 
 **Jual Kolam Terpal di Jayakerta Karawang** – Kolam ikan ialah beberapa tempat untuk penampungan ikan air tawar yang mampu hidup dg mudah. Kolam ikan terbagi menjadi dua macam yaitu kolam ikan langsung dr tanah dan kolam ikan terpal. Keduanya memiliki faedah yg sama untuk melakukan pemeliharaan ikan air tawar.

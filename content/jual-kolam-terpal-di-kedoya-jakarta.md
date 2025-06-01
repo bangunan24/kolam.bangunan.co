@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kedoya Jakarta"
-date: "2024-06-03"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kedoya Jakarta. Demikian sebagian info yang mampu kami jelaskan tentang Jual Kolam Terpal di Kedoya Jakarta. Jika diantara anda ada yg s..."
+title: Jual Kolam Terpal di Kedoya Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kedoya Jakarta. Demikian sebagian info yang mampu kami
+  jelaskan tentang Jual Kolam Terpal di Kedoya Jakarta. Jika diantara anda ada
+  yg s...
 ---
 
 **Jual Kolam Terpal di Kedoya Jakarta** – Kolam ikan yaitu beberapa tempat untuk penampungan ikan air tawar yg dapat hidup sesuai rencana. Kolam ikan terbagi menjadi 2 tipe yakni kolam ikan langsung dr tanah dan kolam ikan terpal. Keduanya memiliki kegunaan yg sama untuk melakukan pemeliharaan ikan air tawar.

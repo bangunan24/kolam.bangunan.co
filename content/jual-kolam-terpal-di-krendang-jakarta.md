@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Krendang Jakarta"
-date: "2024-06-13"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Krendang Jakarta. Seperti itulah beberapa informasi yang mampu kami rincikan tentang Jual Kolam Terpal di Krendang Jakarta. Jika diantar..."
+title: Jual Kolam Terpal di Krendang Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Krendang Jakarta. Seperti itulah beberapa informasi yang
+  mampu kami rincikan tentang Jual Kolam Terpal di Krendang Jakarta. Jika
+  diantar...
 ---
 
 **Jual Kolam Terpal di Krendang Jakarta** – Kolam ikan ialah salah satu lokasi untuk penampungan ikan air tawar yg dapat hidup dengan mudah. Kolam ikan terbagi menjadi 2 macam yakni kolam ikan langsung dr lahan dan kolam ikan terpal. Keduanya punya faedah yg mirip untuk lakukan pemeliharaan ikan air tawar.

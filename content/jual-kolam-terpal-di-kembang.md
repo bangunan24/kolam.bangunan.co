@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kembang"
-date: "2024-06-12"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kembang. Demikian beberapa info yg dapat kami jelaskan tentang Jual Kolam Terpal di Kembang. Apabila diantara anda ada yg sedang membutu..."
+title: Jual Kolam Terpal di Kembang
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kembang. Demikian beberapa info yg dapat kami jelaskan
+  tentang Jual Kolam Terpal di Kembang. Apabila diantara anda ada yg sedang
+  membutu...
 ---
 
 **Jual Kolam Terpal di Kembang** – Kolam ikan adalah satu-satunya lokasi untuk penampungan ikan air tawar yg mampu hidup sesuai rencana. Kolam ikan terbagi jadi 2 tipe yakni kolam ikan segera dr lahan dan kolam ikan terpal. Keduanya memiliki manfaat yg sama untuk melakukan pemeliharaan ikan air tawar.

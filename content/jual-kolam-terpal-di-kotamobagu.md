@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kotamobagu"
-date: "2024-06-24"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kotamobagu. Itulah sebagian informasi yg bisa kami rincikan perihal Jual Kolam Terpal di Kotamobagu. Jika diantara anda ada yang sedang..."
+title: Jual Kolam Terpal di Kotamobagu
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kotamobagu. Itulah sebagian informasi yg bisa kami
+  rincikan perihal Jual Kolam Terpal di Kotamobagu. Jika diantara anda ada yang
+  sedang...
 ---
 
 **Jual Kolam Terpal di Kotamobagu** – Kolam ikan adalah salah satu tempat untuk penampungan ikan air tawar yg mampu hidup akan sesuai keinginan. Kolam ikan terbagi menjadi 2 tipe yaitu kolam ikan segera dr tanah dan kolam ikan terpal. Keduanya punyai kegunaan yg serupa untuk melakukan pemeliharaan ikan air tawar.

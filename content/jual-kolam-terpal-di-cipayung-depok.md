@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cipayung Depok"
-date: "2024-06-17"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cipayung Depok. Seperti itulah sebagian pemaparan yang dapat kami sampaikan mengenai Jual Kolam Terpal di Cipayung Depok. Mungkin dianta..."
+title: Jual Kolam Terpal di Cipayung Depok
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cipayung Depok. Seperti itulah sebagian pemaparan yang
+  dapat kami sampaikan mengenai Jual Kolam Terpal di Cipayung Depok. Mungkin
+  dianta...
 ---
 
 **Jual Kolam Terpal di Cipayung Depok** – Kolam ikan ialah salah satu area untuk penampungan ikan air tawar yg mampu hidup sesuai rencana. Kolam ikan terbagi jadi 2 macam yakni kolam ikan segera dr daerah dan kolam ikan terpal. Keduanya mempunyai kegunaan yg mirip untuk melakukan pemeliharaan ikan air tawar.

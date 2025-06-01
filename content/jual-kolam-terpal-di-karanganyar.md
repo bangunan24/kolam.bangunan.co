@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Karanganyar"
-date: "2024-06-07"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Karanganyar. Demikian beberapa info yang bisa kami jelaskan mengenai Jual Kolam Terpal di Karanganyar. Mungkin diantara anda ada yang se..."
+title: Jual Kolam Terpal di Karanganyar
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Karanganyar. Demikian beberapa info yang bisa kami
+  jelaskan mengenai Jual Kolam Terpal di Karanganyar. Mungkin diantara anda ada
+  yang se...
 ---
 
 **Jual Kolam Terpal di Karanganyar** – Kolam ikan yaitu beberapa tempat untuk penampungan ikan air tawar yg mampu hidup akan sesuai keinginan. Kolam ikan terbagi menjadi 2 macam yakni kolam ikan segera dr daerah dan kolam ikan terpal. Keduanya memiliki fungsi yang serupa untuk laksanakan pemeliharaan ikan air tawar.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kalimulya Depok"
-date: "2024-06-29"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kalimulya Depok. Seperti itulah sebagian pemaparan yg mampu kami jelaskan mengenai Jual Kolam Terpal di Kalimulya Depok. Mungkin diantar..."
+title: Jual Kolam Terpal di Kalimulya Depok
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kalimulya Depok. Seperti itulah sebagian pemaparan yg
+  mampu kami jelaskan mengenai Jual Kolam Terpal di Kalimulya Depok. Mungkin
+  diantar...
 ---
 
 **Jual Kolam Terpal di Kalimulya Depok** – Kolam ikan ialah beberapa area untuk penampungan ikan air tawar yg mampu hidup sesuai rencana. Kolam ikan terbagi jadi dua jenis yakni kolam ikan langsung dari daerah dan kolam ikan terpal. Keduanya memiliki manfaat yang sama untuk melaksanakan pemeliharaan ikan air tawar.

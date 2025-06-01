@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Bojong Purwakarta"
-date: "2024-06-21"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Bojong Purwakarta. Itulah sebagian penjelasan yang bisa kami uraikan mengenai Jual Kolam Terpal di Bojong Purwakarta. Apabila diantara a..."
+title: Jual Kolam Terpal di Bojong Purwakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Bojong Purwakarta. Itulah sebagian penjelasan yang bisa
+  kami uraikan mengenai Jual Kolam Terpal di Bojong Purwakarta. Apabila diantara
+  a...
 ---
 
 **Jual Kolam Terpal di Bojong Purwakarta** – Kolam ikan adalah beberapa tempat untuk penampungan ikan air tawar yang bisa hidup dengan mudah. Kolam ikan terbagi menjadi 2 tipe yaitu kolam ikan segera dari lahan dan kolam ikan terpal. Keduanya punya manfaat yang mirip untuk melakukan pemeliharaan ikan air tawar.

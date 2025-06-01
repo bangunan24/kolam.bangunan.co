@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Harjasari Bogor"
-date: "2024-06-06"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Harjasari Bogor. Demikian sebagian informasi yg bisa kami uraikan mengenai Jual Kolam Terpal di Harjasari Bogor. Mungkin diantara anda a..."
+title: Jual Kolam Terpal di Harjasari Bogor
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Harjasari Bogor. Demikian sebagian informasi yg bisa kami
+  uraikan mengenai Jual Kolam Terpal di Harjasari Bogor. Mungkin diantara anda
+  a...
 ---
 
 **Jual Kolam Terpal di Harjasari Bogor** – Kolam ikan adalah satu-satunya tempat untuk penampungan ikan air tawar yg dapat hidup dg mudah. Kolam ikan terbagi jadi dua macam yaitu kolam ikan segera dr daerah dan kolam ikan terpal. Keduanya mempunyai faedah yg mirip untuk lakukan pemeliharaan ikan air tawar.

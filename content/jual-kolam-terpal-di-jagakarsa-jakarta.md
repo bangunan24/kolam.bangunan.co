@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Jagakarsa Jakarta"
-date: "2024-06-11"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Jagakarsa Jakarta. Itulah sebagian info yg bisa kami sampaikan perihal Jual Kolam Terpal di Jagakarsa Jakarta. Jika diantara anda ada ya..."
+title: Jual Kolam Terpal di Jagakarsa Jakarta
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Jagakarsa Jakarta. Itulah sebagian info yg bisa kami
+  sampaikan perihal Jual Kolam Terpal di Jagakarsa Jakarta. Jika diantara anda
+  ada ya...
 ---
 
 **Jual Kolam Terpal di Jagakarsa Jakarta** – Kolam ikan adalah salah satu tempat untuk penampungan ikan air tawar yg dapat hidup sesuai pesanan. Kolam ikan terbagi jadi 2 jenis yaitu kolam ikan segera dr lahan dan kolam ikan terpal. Keduanya punyai faedah yang serupa untuk melakukan pemeliharaan ikan air tawar.

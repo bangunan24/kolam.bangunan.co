@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kalibaru Depok"
-date: "2024-06-10"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kalibaru Depok. Itulah sebagian pemaparan yg bisa kami uraikan tentang Jual Kolam Terpal di Kalibaru Depok. Mungkin diantara anda ada ya..."
+title: Jual Kolam Terpal di Kalibaru Depok
+date: '2025-06-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kalibaru Depok. Itulah sebagian pemaparan yg bisa kami
+  uraikan tentang Jual Kolam Terpal di Kalibaru Depok. Mungkin diantara anda ada
+  ya...
 ---
 
 **Jual Kolam Terpal di Kalibaru Depok** – Kolam ikan adalah beberapa tempat untuk penampungan ikan air tawar yang mampu hidup sesuai pesanan. Kolam ikan terbagi menjadi dua tipe yakni kolam ikan langsung dr tanah dan kolam ikan terpal. Keduanya memiliki fungsi yang mirip untuk lakukan pemeliharaan ikan air tawar.
