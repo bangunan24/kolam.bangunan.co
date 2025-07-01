@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cibuaya Karawang"
-date: "2024-07-31"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cibuaya Karawang. Itulah beberapa info yang dapat kami uraikan tentang Jual Kolam Terpal di Cibuaya Karawang. Mungkin diantara anda ada..."
+title: Jual Kolam Terpal di Cibuaya Karawang
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cibuaya Karawang. Itulah beberapa info yang dapat kami
+  uraikan tentang Jual Kolam Terpal di Cibuaya Karawang. Mungkin diantara anda
+  ada...
 ---
 
 **Jual Kolam Terpal di Cibuaya Karawang** – Kolam ikan yakni satu-satunya tempat untuk penampungan ikan air tawar yg bisa hidup akan sesuai keinginan. Kolam ikan terbagi jadi 2 tipe yaitu kolam ikan langsung dari lahan dan kolam ikan terpal. Keduanya punya kegunaan yang mirip untuk melaksanakan pemeliharaan ikan air tawar.

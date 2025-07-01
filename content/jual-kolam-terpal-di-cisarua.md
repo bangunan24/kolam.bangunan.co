@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cisarua"
-date: "2024-07-31"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cisarua. Demikian beberapa pemaparan yang bisa kami rincikan perihal Jual Kolam Terpal di Cisarua. Apabila diantara anda ada yg sedang m..."
+title: Jual Kolam Terpal di Cisarua
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cisarua. Demikian beberapa pemaparan yang bisa kami
+  rincikan perihal Jual Kolam Terpal di Cisarua. Apabila diantara anda ada yg
+  sedang m...
 ---
 
 **Jual Kolam Terpal di Cisarua** – Kolam ikan yakni beberapa tempat untuk penampungan ikan air tawar yang bisa hidup sesuai rencana. Kolam ikan terbagi menjadi 2 tipe yakni kolam ikan langsung dari tanah dan kolam ikan terpal. Keduanya memiliki fungsi yang sama untuk lakukan pemeliharaan ikan air tawar.

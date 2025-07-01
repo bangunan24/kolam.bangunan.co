@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Karangwage"
-date: "2024-07-11"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Karangwage. Seperti itulah beberapa penjelasan yg mampu kami rincikan perihal Jual Kolam Terpal di Karangwage. Jika diantara anda ada yg..."
+title: Jual Kolam Terpal di Karangwage
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Karangwage. Seperti itulah beberapa penjelasan yg mampu
+  kami rincikan perihal Jual Kolam Terpal di Karangwage. Jika diantara anda ada
+  yg...
 ---
 
 **Jual Kolam Terpal di Karangwage** – Kolam ikan yakni beberapa tempat untuk penampungan ikan air tawar yang dapat hidup sesuai rencana. Kolam ikan terbagi menjadi 2 jenis yaitu kolam ikan segera dari daerah dan kolam ikan terpal. Keduanya punyai kegunaan yg sama untuk lakukan pemeliharaan ikan air tawar.

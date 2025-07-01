@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kebon Kosong Jakarta"
-date: "2024-07-06"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kebon Kosong Jakarta. Demikian sebagian pemaparan yg dapat kami uraikan mengenai Jual Kolam Terpal di Kebon Kosong Jakarta. Apabila dian..."
+title: Jual Kolam Terpal di Kebon Kosong Jakarta
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kebon Kosong Jakarta. Demikian sebagian pemaparan yg
+  dapat kami uraikan mengenai Jual Kolam Terpal di Kebon Kosong Jakarta. Apabila
+  dian...
 ---
 
 **Jual Kolam Terpal di Kebon Kosong Jakarta** – Kolam ikan yaitu salah satu lokasi untuk penampungan ikan air tawar yang mampu hidup dengan mudah. Kolam ikan terbagi menjadi dua tipe yaitu kolam ikan segera dari tanah dan kolam ikan terpal. Keduanya memiliki manfaat yg serupa untuk laksanakan pemeliharaan ikan air tawar.

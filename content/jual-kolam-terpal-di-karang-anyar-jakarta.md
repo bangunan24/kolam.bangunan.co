@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Karang Anyar Jakarta"
-date: "2024-07-07"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Karang Anyar Jakarta. Demikian sebagian info yg dapat kami jelaskan perihal Jual Kolam Terpal di Karang Anyar Jakarta. Jika diantara and..."
+title: Jual Kolam Terpal di Karang Anyar Jakarta
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Karang Anyar Jakarta. Demikian sebagian info yg dapat
+  kami jelaskan perihal Jual Kolam Terpal di Karang Anyar Jakarta. Jika diantara
+  and...
 ---
 
 **Jual Kolam Terpal di Karang Anyar Jakarta** – Kolam ikan yaitu beberapa tempat untuk penampungan ikan air tawar yg bisa hidup akan sesuai keinginan. Kolam ikan terbagi menjadi dua macam yakni kolam ikan segera dr daerah dan kolam ikan terpal. Keduanya punyai manfaat yg mirip untuk melakukan pemeliharaan ikan air tawar.

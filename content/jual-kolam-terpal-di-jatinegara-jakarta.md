@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Jatinegara Jakarta"
-date: "2024-07-05"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Jatinegara Jakarta. Seperti itulah sebagian uraian yang dapat kami sampaikan mengenai Jual Kolam Terpal di Jatinegara Jakarta. Jika dian..."
+title: Jual Kolam Terpal di Jatinegara Jakarta
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Jatinegara Jakarta. Seperti itulah sebagian uraian yang
+  dapat kami sampaikan mengenai Jual Kolam Terpal di Jatinegara Jakarta. Jika
+  dian...
 ---
 
 **Jual Kolam Terpal di Jatinegara Jakarta** – Kolam ikan adalah salah satu area untuk penampungan ikan air tawar yang bisa hidup sesuai pesanan. Kolam ikan terbagi menjadi dua tipe yaitu kolam ikan segera dr daerah dan kolam ikan terpal. Keduanya punya kegunaan yg serupa untuk jalankan pemeliharaan ikan air tawar.

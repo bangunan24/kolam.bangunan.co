@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Ciracas Jakarta"
-date: "2024-07-25"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Ciracas Jakarta. Seperti itulah sebagian penjelasan yang bisa kami jelaskan tentang Jual Kolam Terpal di Ciracas Jakarta. Apabila dianta..."
+title: Jual Kolam Terpal di Ciracas Jakarta
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Ciracas Jakarta. Seperti itulah sebagian penjelasan yang
+  bisa kami jelaskan tentang Jual Kolam Terpal di Ciracas Jakarta. Apabila
+  dianta...
 ---
 
 **Jual Kolam Terpal di Ciracas Jakarta** – Kolam ikan ialah salah satu tempat untuk penampungan ikan air tawar yg dapat hidup sesuai rencana. Kolam ikan terbagi jadi 2 macam yaitu kolam ikan segera dr daerah dan kolam ikan terpal. Keduanya mempunyai fungsi yang mirip untuk melaksanakan pemeliharaan ikan air tawar.

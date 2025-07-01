@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Dramaga Bogor"
-date: "2024-07-30"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Dramaga Bogor. Demikian sebagian uraian yg dapat kami uraikan perihal Jual Kolam Terpal di Dramaga Bogor. Jika diantara anda ada yg seda..."
+title: Jual Kolam Terpal di Dramaga Bogor
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Dramaga Bogor. Demikian sebagian uraian yg dapat kami
+  uraikan perihal Jual Kolam Terpal di Dramaga Bogor. Jika diantara anda ada yg
+  seda...
 ---
 
 **Jual Kolam Terpal di Dramaga Bogor** – Kolam ikan adalah satu-satunya lokasi untuk penampungan ikan air tawar yang bisa hidup dengan mudah. Kolam ikan terbagi menjadi 2 jenis yaitu kolam ikan langsung dr daerah dan kolam ikan terpal. Keduanya miliki kegunaan yang sama untuk melaksanakan pemeliharaan ikan air tawar.

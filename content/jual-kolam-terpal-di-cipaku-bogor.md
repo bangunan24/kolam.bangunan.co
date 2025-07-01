@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cipaku Bogor"
-date: "2024-07-22"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cipaku Bogor. Itulah beberapa informasi yang dapat kami uraikan mengenai Jual Kolam Terpal di Cipaku Bogor. Jika diantara anda ada yg se..."
+title: Jual Kolam Terpal di Cipaku Bogor
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cipaku Bogor. Itulah beberapa informasi yang dapat kami
+  uraikan mengenai Jual Kolam Terpal di Cipaku Bogor. Jika diantara anda ada yg
+  se...
 ---
 
 **Jual Kolam Terpal di Cipaku Bogor** – Kolam ikan yakni satu-satunya area untuk penampungan ikan air tawar yang mampu hidup dg mudah. Kolam ikan terbagi jadi 2 tipe yaitu kolam ikan langsung dari daerah dan kolam ikan terpal. Keduanya mempunyai fungsi yg serupa untuk lakukan pemeliharaan ikan air tawar.

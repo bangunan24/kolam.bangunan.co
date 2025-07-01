@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kelapa Gading Jakarta"
-date: "2024-07-27"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kelapa Gading Jakarta. Itulah beberapa info yg bisa kami jelaskan mengenai Jual Kolam Terpal di Kelapa Gading Jakarta. Mungkin diantara..."
+title: Jual Kolam Terpal di Kelapa Gading Jakarta
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kelapa Gading Jakarta. Itulah beberapa info yg bisa kami
+  jelaskan mengenai Jual Kolam Terpal di Kelapa Gading Jakarta. Mungkin
+  diantara...
 ---
 
 **Jual Kolam Terpal di Kelapa Gading Jakarta** – Kolam ikan yakni beberapa tempat untuk penampungan ikan air tawar yg bisa hidup akan sesuai keinginan. Kolam ikan terbagi menjadi dua tipe yakni kolam ikan langsung dr lahan dan kolam ikan terpal. Keduanya mempunyai manfaat yg sama untuk laksanakan pemeliharaan ikan air tawar.

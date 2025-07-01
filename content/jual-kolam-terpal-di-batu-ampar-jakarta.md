@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Batu Ampar Jakarta"
-date: "2024-07-24"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Batu Ampar Jakarta. Seperti itulah beberapa penjelasan yang bisa kami jelaskan perihal Jual Kolam Terpal di Batu Ampar Jakarta. Apabila..."
+title: Jual Kolam Terpal di Batu Ampar Jakarta
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Batu Ampar Jakarta. Seperti itulah beberapa penjelasan
+  yang bisa kami jelaskan perihal Jual Kolam Terpal di Batu Ampar Jakarta.
+  Apabila...
 ---
 
 **Jual Kolam Terpal di Batu Ampar Jakarta** – Kolam ikan adalah salah satu lokasi untuk penampungan ikan air tawar yang bisa hidup sesuai pesanan. Kolam ikan terbagi menjadi 2 jenis yaitu kolam ikan segera dari tanah dan kolam ikan terpal. Keduanya punyai manfaat yang mirip untuk lakukan pemeliharaan ikan air tawar.

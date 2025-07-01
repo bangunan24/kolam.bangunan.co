@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Duren Sawit Jakarta"
-date: "2024-07-07"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Duren Sawit Jakarta. Demikian sebagian pemaparan yang dapat kami uraikan tentang Jual Kolam Terpal di Duren Sawit Jakarta. Mungkin diant..."
+title: Jual Kolam Terpal di Duren Sawit Jakarta
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Duren Sawit Jakarta. Demikian sebagian pemaparan yang
+  dapat kami uraikan tentang Jual Kolam Terpal di Duren Sawit Jakarta. Mungkin
+  diant...
 ---
 
 **Jual Kolam Terpal di Duren Sawit Jakarta** – Kolam ikan yakni salah satu tempat untuk penampungan ikan air tawar yg bisa hidup dg mudah. Kolam ikan terbagi menjadi dua jenis yaitu kolam ikan langsung dari lahan dan kolam ikan terpal. Keduanya miliki manfaat yang serupa untuk lakukan pemeliharaan ikan air tawar.

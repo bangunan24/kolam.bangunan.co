@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cinere Depok"
-date: "2024-07-27"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cinere Depok. Seperti itulah beberapa pemaparan yg dapat kami uraikan tentang Jual Kolam Terpal di Cinere Depok. Mungkin diantara anda a..."
+title: Jual Kolam Terpal di Cinere Depok
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cinere Depok. Seperti itulah beberapa pemaparan yg dapat
+  kami uraikan tentang Jual Kolam Terpal di Cinere Depok. Mungkin diantara anda
+  a...
 ---
 
 **Jual Kolam Terpal di Cinere Depok** – Kolam ikan yaitu salah satu area untuk penampungan ikan air tawar yang dapat hidup sesuai rencana. Kolam ikan terbagi jadi dua tipe yaitu kolam ikan langsung dr daerah dan kolam ikan terpal. Keduanya punyai fungsi yang mirip untuk lakukan pemeliharaan ikan air tawar.

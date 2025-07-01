@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kemanggisan Jakarta"
-date: "2024-07-28"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kemanggisan Jakarta. Itulah beberapa info yang dapat kami jelaskan perihal Jual Kolam Terpal di Kemanggisan Jakarta. Apabila diantara an..."
+title: Jual Kolam Terpal di Kemanggisan Jakarta
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kemanggisan Jakarta. Itulah beberapa info yang dapat kami
+  jelaskan perihal Jual Kolam Terpal di Kemanggisan Jakarta. Apabila diantara
+  an...
 ---
 
 **Jual Kolam Terpal di Kemanggisan Jakarta** – Kolam ikan ialah satu-satunya area untuk penampungan ikan air tawar yang bisa hidup sesuai rencana. Kolam ikan terbagi menjadi dua jenis yaitu kolam ikan langsung dr lahan dan kolam ikan terpal. Keduanya mempunyai faedah yg mirip untuk lakukan pemeliharaan ikan air tawar.

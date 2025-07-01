@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kajen"
-date: "2024-07-31"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kajen. Itulah sebagian informasi yang dapat kami sampaikan perihal Jual Kolam Terpal di Kajen. Jika diantara anda ada yang sedang memerl..."
+title: Jual Kolam Terpal di Kajen
+date: '2025-07-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kajen. Itulah sebagian informasi yang dapat kami
+  sampaikan perihal Jual Kolam Terpal di Kajen. Jika diantara anda ada yang
+  sedang memerl...
 ---
 
 **Jual Kolam Terpal di Kajen** – Kolam ikan yakni salah satu area untuk penampungan ikan air tawar yang dapat hidup sesuai rencana. Kolam ikan terbagi jadi dua tipe yaitu kolam ikan segera dr lahan dan kolam ikan terpal. Keduanya memiliki fungsi yang mirip untuk lakukan pemeliharaan ikan air tawar.
