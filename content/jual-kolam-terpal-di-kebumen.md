@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kebumen"
-date: "2024-08-22"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kebumen. Demikian sebagian penjelasan yang mampu kami rincikan tentang Jual Kolam Terpal di Kebumen. Mungkin diantara anda ada yang seda..."
+title: Jual Kolam Terpal di Kebumen
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kebumen. Demikian sebagian penjelasan yang mampu kami
+  rincikan tentang Jual Kolam Terpal di Kebumen. Mungkin diantara anda ada yang
+  seda...
 ---
 
 **Jual Kolam Terpal di Kebumen** – Kolam ikan yaitu beberapa tempat untuk penampungan ikan air tawar yang bisa hidup akan sesuai keinginan. Kolam ikan terbagi menjadi dua macam yaitu kolam ikan langsung dari daerah dan kolam ikan terpal. Keduanya mempunyai kegunaan yang sama untuk jalankan pemeliharaan ikan air tawar.

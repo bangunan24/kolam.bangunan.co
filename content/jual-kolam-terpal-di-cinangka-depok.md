@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cinangka Depok"
-date: "2024-08-12"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cinangka Depok. Itulah sebagian informasi yg mampu kami rincikan mengenai Jual Kolam Terpal di Cinangka Depok. Apabila diantara anda ada..."
+title: Jual Kolam Terpal di Cinangka Depok
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cinangka Depok. Itulah sebagian informasi yg mampu kami
+  rincikan mengenai Jual Kolam Terpal di Cinangka Depok. Apabila diantara anda
+  ada...
 ---
 
 **Jual Kolam Terpal di Cinangka Depok** – Kolam ikan yaitu salah satu area untuk penampungan ikan air tawar yg bisa hidup akan sesuai keinginan. Kolam ikan terbagi menjadi dua jenis yakni kolam ikan segera dr tanah dan kolam ikan terpal. Keduanya miliki faedah yang sama untuk laksanakan pemeliharaan ikan air tawar.

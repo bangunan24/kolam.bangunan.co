@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kebon Manggis Jakarta"
-date: "2024-08-27"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kebon Manggis Jakarta. Itulah sebagian pemaparan yang dapat kami jelaskan mengenai Jual Kolam Terpal di Kebon Manggis Jakarta. Mungkin d..."
+title: Jual Kolam Terpal di Kebon Manggis Jakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kebon Manggis Jakarta. Itulah sebagian pemaparan yang
+  dapat kami jelaskan mengenai Jual Kolam Terpal di Kebon Manggis Jakarta.
+  Mungkin d...
 ---
 
 **Jual Kolam Terpal di Kebon Manggis Jakarta** – Kolam ikan yaitu beberapa lokasi untuk penampungan ikan air tawar yang bisa hidup akan sesuai keinginan. Kolam ikan terbagi menjadi dua jenis yaitu kolam ikan segera dr tanah dan kolam ikan terpal. Keduanya miliki kegunaan yg mirip untuk melaksanakan pemeliharaan ikan air tawar.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Katulampa Bogor"
-date: "2024-08-09"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Katulampa Bogor. Demikian beberapa informasi yg bisa kami jelaskan tentang Jual Kolam Terpal di Katulampa Bogor. Mungkin diantara anda a..."
+title: Jual Kolam Terpal di Katulampa Bogor
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Katulampa Bogor. Demikian beberapa informasi yg bisa kami
+  jelaskan tentang Jual Kolam Terpal di Katulampa Bogor. Mungkin diantara anda
+  a...
 ---
 
 **Jual Kolam Terpal di Katulampa Bogor** – Kolam ikan yaitu salah satu tempat untuk penampungan ikan air tawar yang dapat hidup sesuai pesanan. Kolam ikan terbagi jadi 2 tipe yaitu kolam ikan segera dari lahan dan kolam ikan terpal. Keduanya punyai faedah yg mirip untuk laksanakan pemeliharaan ikan air tawar.

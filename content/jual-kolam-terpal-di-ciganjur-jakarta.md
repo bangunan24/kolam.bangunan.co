@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Ciganjur Jakarta"
-date: "2024-08-08"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Ciganjur Jakarta. Itulah sebagian informasi yg bisa kami jelaskan perihal Jual Kolam Terpal di Ciganjur Jakarta. Jika diantara anda ada..."
+title: Jual Kolam Terpal di Ciganjur Jakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Ciganjur Jakarta. Itulah sebagian informasi yg bisa kami
+  jelaskan perihal Jual Kolam Terpal di Ciganjur Jakarta. Jika diantara anda
+  ada...
 ---
 
 **Jual Kolam Terpal di Ciganjur Jakarta** – Kolam ikan yakni beberapa lokasi untuk penampungan ikan air tawar yang mampu hidup dengan mudah. Kolam ikan terbagi jadi dua jenis yaitu kolam ikan langsung dr lahan dan kolam ikan terpal. Keduanya memiliki fungsi yg sama untuk lakukan pemeliharaan ikan air tawar.

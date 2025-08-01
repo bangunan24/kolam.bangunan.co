@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Gunung Sahari Jakarta"
-date: "2024-08-21"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Gunung Sahari Jakarta. Seperti itulah beberapa penjelasan yang dapat kami rincikan perihal Jual Kolam Terpal di Gunung Sahari Jakarta. J..."
+title: Jual Kolam Terpal di Gunung Sahari Jakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Gunung Sahari Jakarta. Seperti itulah beberapa penjelasan
+  yang dapat kami rincikan perihal Jual Kolam Terpal di Gunung Sahari Jakarta.
+  J...
 ---
 
 **Jual Kolam Terpal di Gunung Sahari Jakarta** – Kolam ikan yakni salah satu tempat untuk penampungan ikan air tawar yang dapat hidup dg mudah. Kolam ikan terbagi jadi 2 tipe yaitu kolam ikan langsung dr tanah dan kolam ikan terpal. Keduanya mempunyai fungsi yang serupa untuk jalankan pemeliharaan ikan air tawar.

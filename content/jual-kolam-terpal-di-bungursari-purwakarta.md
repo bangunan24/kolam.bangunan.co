@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Bungursari Purwakarta"
-date: "2024-08-23"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Bungursari Purwakarta. Itulah sebagian uraian yg dapat kami rincikan perihal Jual Kolam Terpal di Bungursari Purwakarta. Mungkin diantar..."
+title: Jual Kolam Terpal di Bungursari Purwakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Bungursari Purwakarta. Itulah sebagian uraian yg dapat
+  kami rincikan perihal Jual Kolam Terpal di Bungursari Purwakarta. Mungkin
+  diantar...
 ---
 
 **Jual Kolam Terpal di Bungursari Purwakarta** – Kolam ikan yaitu beberapa area untuk penampungan ikan air tawar yang mampu hidup dg mudah. Kolam ikan terbagi jadi 2 tipe yaitu kolam ikan langsung dari tanah dan kolam ikan terpal. Keduanya memiliki kegunaan yg mirip untuk lakukan pemeliharaan ikan air tawar.

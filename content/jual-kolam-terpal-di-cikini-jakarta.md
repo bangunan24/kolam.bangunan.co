@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cikini Jakarta"
-date: "2024-08-19"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cikini Jakarta. Itulah sebagian uraian yang dapat kami sampaikan perihal Jual Kolam Terpal di Cikini Jakarta. Jika diantara anda ada yg..."
+title: Jual Kolam Terpal di Cikini Jakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cikini Jakarta. Itulah sebagian uraian yang dapat kami
+  sampaikan perihal Jual Kolam Terpal di Cikini Jakarta. Jika diantara anda ada
+  yg...
 ---
 
 **Jual Kolam Terpal di Cikini Jakarta** – Kolam ikan adalah beberapa area untuk penampungan ikan air tawar yg dapat hidup dengan mudah. Kolam ikan terbagi jadi dua jenis yaitu kolam ikan segera dr daerah dan kolam ikan terpal. Keduanya memiliki kegunaan yang mirip untuk laksanakan pemeliharaan ikan air tawar.

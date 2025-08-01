@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kretek"
-date: "2024-08-30"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kretek. Itulah beberapa pemaparan yg bisa kami rincikan mengenai Jual Kolam Terpal di Kretek. Jika diantara anda ada yg sedang memerluka..."
+title: Jual Kolam Terpal di Kretek
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kretek. Itulah beberapa pemaparan yg bisa kami rincikan
+  mengenai Jual Kolam Terpal di Kretek. Jika diantara anda ada yg sedang
+  memerluka...
 ---
 
 **Jual Kolam Terpal di Kretek** – Kolam ikan adalah salah satu tempat untuk penampungan ikan air tawar yg bisa hidup sesuai pesanan. Kolam ikan terbagi menjadi dua jenis yaitu kolam ikan langsung dr daerah dan kolam ikan terpal. Keduanya mempunyai manfaat yang sama untuk lakukan pemeliharaan ikan air tawar.

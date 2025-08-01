@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Lawang Gintung Bogor"
-date: "2024-08-15"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Lawang Gintung Bogor. Seperti itulah beberapa uraian yang dapat kami uraikan tentang Jual Kolam Terpal di Lawang Gintung Bogor. Jika dia..."
+title: Jual Kolam Terpal di Lawang Gintung Bogor
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Lawang Gintung Bogor. Seperti itulah beberapa uraian yang
+  dapat kami uraikan tentang Jual Kolam Terpal di Lawang Gintung Bogor. Jika
+  dia...
 ---
 
 **Jual Kolam Terpal di Lawang Gintung Bogor** – Kolam ikan yaitu salah satu area untuk penampungan ikan air tawar yang bisa hidup dengan mudah. Kolam ikan terbagi jadi dua tipe yaitu kolam ikan segera dr daerah dan kolam ikan terpal. Keduanya miliki fungsi yg sama untuk melakukan pemeliharaan ikan air tawar.

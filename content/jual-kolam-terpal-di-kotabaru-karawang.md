@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kotabaru Karawang"
-date: "2024-08-14"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kotabaru Karawang. Demikian sebagian info yg mampu kami rincikan perihal Jual Kolam Terpal di Kotabaru Karawang. Apabila diantara anda a..."
+title: Jual Kolam Terpal di Kotabaru Karawang
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kotabaru Karawang. Demikian sebagian info yg mampu kami
+  rincikan perihal Jual Kolam Terpal di Kotabaru Karawang. Apabila diantara anda
+  a...
 ---
 
 **Jual Kolam Terpal di Kotabaru Karawang** – Kolam ikan adalah salah satu area untuk penampungan ikan air tawar yang dapat hidup sesuai rencana. Kolam ikan terbagi jadi 2 macam yaitu kolam ikan segera dr daerah dan kolam ikan terpal. Keduanya punyai fungsi yang sama untuk lakukan pemeliharaan ikan air tawar.

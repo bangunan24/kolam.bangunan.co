@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kembangan Jakarta"
-date: "2024-08-01"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kembangan Jakarta. Seperti itulah beberapa penjelasan yg dapat kami jelaskan perihal Jual Kolam Terpal di Kembangan Jakarta. Apabila dia..."
+title: Jual Kolam Terpal di Kembangan Jakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kembangan Jakarta. Seperti itulah beberapa penjelasan yg
+  dapat kami jelaskan perihal Jual Kolam Terpal di Kembangan Jakarta. Apabila
+  dia...
 ---
 
 **Jual Kolam Terpal di Kembangan Jakarta** – Kolam ikan adalah salah satu lokasi untuk penampungan ikan air tawar yg bisa hidup akan sesuai keinginan. Kolam ikan terbagi menjadi 2 macam yakni kolam ikan langsung dr daerah dan kolam ikan terpal. Keduanya punya fungsi yang sama untuk melaksanakan pemeliharaan ikan air tawar.

@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Campaka Purwakarta"
-date: "2024-08-28"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Campaka Purwakarta. Seperti itulah sebagian uraian yg mampu kami rincikan perihal Jual Kolam Terpal di Campaka Purwakarta. Jika diantara..."
+title: Jual Kolam Terpal di Campaka Purwakarta
+date: '2025-08-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Campaka Purwakarta. Seperti itulah sebagian uraian yg
+  mampu kami rincikan perihal Jual Kolam Terpal di Campaka Purwakarta. Jika
+  diantara...
 ---
 
 **Jual Kolam Terpal di Campaka Purwakarta** – Kolam ikan adalah satu-satunya lokasi untuk penampungan ikan air tawar yang bisa hidup sesuai pesanan. Kolam ikan terbagi jadi 2 tipe yaitu kolam ikan segera dr tanah dan kolam ikan terpal. Keduanya memiliki fungsi yg sama untuk melakukan pemeliharaan ikan air tawar.
