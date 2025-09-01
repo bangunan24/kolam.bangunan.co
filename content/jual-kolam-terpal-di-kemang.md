@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kemang"
-date: "2024-09-05"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kemang. Demikian sebagian informasi yang dapat kami sampaikan mengenai Jual Kolam Terpal di Kemang. Apabila diantara anda ada yang sedan..."
+title: Jual Kolam Terpal di Kemang
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kemang. Demikian sebagian informasi yang dapat kami
+  sampaikan mengenai Jual Kolam Terpal di Kemang. Apabila diantara anda ada yang
+  sedan...
 ---
 
 **Jual Kolam Terpal di Kemang** – Kolam ikan adalah salah satu lokasi untuk penampungan ikan air tawar yang dapat hidup dengan mudah. Kolam ikan terbagi jadi 2 macam yaitu kolam ikan segera dari daerah dan kolam ikan terpal. Keduanya memiliki fungsi yg sama untuk melakukan pemeliharaan ikan air tawar.

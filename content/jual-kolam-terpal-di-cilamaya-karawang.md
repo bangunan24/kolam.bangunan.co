@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Cilamaya Karawang"
-date: "2024-09-13"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Cilamaya Karawang. Demikian sebagian pemaparan yg mampu kami jelaskan tentang Jual Kolam Terpal di Cilamaya Karawang. Apabila diantara a..."
+title: Jual Kolam Terpal di Cilamaya Karawang
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Cilamaya Karawang. Demikian sebagian pemaparan yg mampu
+  kami jelaskan tentang Jual Kolam Terpal di Cilamaya Karawang. Apabila diantara
+  a...
 ---
 
 **Jual Kolam Terpal di Cilamaya Karawang** – Kolam ikan adalah salah satu area untuk penampungan ikan air tawar yang mampu hidup dg mudah. Kolam ikan terbagi menjadi 2 tipe yakni kolam ikan langsung dari lahan dan kolam ikan terpal. Keduanya miliki kegunaan yang sama untuk melaksanakan pemeliharaan ikan air tawar.

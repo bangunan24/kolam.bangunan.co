@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kartini Jakarta"
-date: "2024-09-10"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kartini Jakarta. Demikian sebagian info yang mampu kami uraikan mengenai Jual Kolam Terpal di Kartini Jakarta. Apabila diantara anda ada..."
+title: Jual Kolam Terpal di Kartini Jakarta
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kartini Jakarta. Demikian sebagian info yang mampu kami
+  uraikan mengenai Jual Kolam Terpal di Kartini Jakarta. Apabila diantara anda
+  ada...
 ---
 
 **Jual Kolam Terpal di Kartini Jakarta** – Kolam ikan adalah satu-satunya lokasi untuk penampungan ikan air tawar yang mampu hidup dg mudah. Kolam ikan terbagi menjadi 2 jenis yakni kolam ikan langsung dr tanah dan kolam ikan terpal. Keduanya miliki fungsi yang serupa untuk lakukan pemeliharaan ikan air tawar.

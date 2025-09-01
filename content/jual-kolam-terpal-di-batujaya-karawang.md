@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Batujaya Karawang"
-date: "2024-09-02"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Batujaya Karawang. Seperti itulah beberapa pemaparan yg dapat kami sampaikan tentang Jual Kolam Terpal di Batujaya Karawang. Apabila dia..."
+title: Jual Kolam Terpal di Batujaya Karawang
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Batujaya Karawang. Seperti itulah beberapa pemaparan yg
+  dapat kami sampaikan tentang Jual Kolam Terpal di Batujaya Karawang. Apabila
+  dia...
 ---
 
 **Jual Kolam Terpal di Batujaya Karawang** – Kolam ikan adalah salah satu lokasi untuk penampungan ikan air tawar yang bisa hidup sesuai rencana. Kolam ikan terbagi jadi dua tipe yaitu kolam ikan segera dari tanah dan kolam ikan terpal. Keduanya memiliki faedah yg sama untuk melaksanakan pemeliharaan ikan air tawar.

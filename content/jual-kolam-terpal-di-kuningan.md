@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Kuningan"
-date: "2024-09-01"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Kuningan. Demikian sebagian penjelasan yang bisa kami uraikan perihal Jual Kolam Terpal di Kuningan. Jika diantara anda ada yang sedang..."
+title: Jual Kolam Terpal di Kuningan
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Kuningan. Demikian sebagian penjelasan yang bisa kami
+  uraikan perihal Jual Kolam Terpal di Kuningan. Jika diantara anda ada yang
+  sedang...
 ---
 
 **Jual Kolam Terpal di Kuningan** – Kolam ikan adalah beberapa tempat untuk penampungan ikan air tawar yang bisa hidup akan sesuai keinginan. Kolam ikan terbagi menjadi 2 jenis yakni kolam ikan segera dari lahan dan kolam ikan terpal. Keduanya memiliki manfaat yang serupa untuk lakukan pemeliharaan ikan air tawar.

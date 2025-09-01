@@ -1,9 +1,12 @@
 ---
-title: "Jual Kolam Terpal di Johar Baru Jakarta"
-date: "2024-09-06"
-categories: 
-  - "harga"
-description: "Jual Kolam Terpal di Johar Baru Jakarta. Demikian sebagian info yg mampu kami jelaskan mengenai Jual Kolam Terpal di Johar Baru Jakarta. Mungkin diantara and..."
+title: Jual Kolam Terpal di Johar Baru Jakarta
+date: '2025-09-01'
+categories:
+  - harga
+description: >-
+  Jual Kolam Terpal di Johar Baru Jakarta. Demikian sebagian info yg mampu kami
+  jelaskan mengenai Jual Kolam Terpal di Johar Baru Jakarta. Mungkin diantara
+  and...
 ---
 
 **Jual Kolam Terpal di Johar Baru Jakarta** – Kolam ikan yaitu satu-satunya area untuk penampungan ikan air tawar yg mampu hidup akan sesuai keinginan. Kolam ikan terbagi jadi 2 jenis yaitu kolam ikan segera dari lahan dan kolam ikan terpal. Keduanya mempunyai manfaat yang sama untuk laksanakan pemeliharaan ikan air tawar.
