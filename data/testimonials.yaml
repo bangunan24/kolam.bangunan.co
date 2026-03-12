@@ -1,53 +1,56 @@
 testimonials:
   - avatar: /images/admin/avatar1.png
-    name: Andi
-    message: >-
-      Layanan kolam.bangunan.co memuaskan, kolam terpal yang saya beli
-      berkualitas dan mudah dipasang.
-    response: Kami sangat menghargai kepercayaan Anda. Terima kasih
-    rating: 4
-  - avatar: /images/admin/avatar2.png
-    name: Maya
-    message: >-
-      Saya puas dengan layanan kolam.bangunan.co. Kolam terpal yang saya pilih
-      handal dan sesuai dengan kebutuhan saya.
-    response: >-
-      Terima kasih banyak atas ulasannya. Kami bangga dapat membantu usaha
-      budidaya Anda.
-    rating: 5
-  - avatar: /images/admin/avatar3.png
     name: Joko
     message: >-
-      Kolam terpal dari kolam.bangunan.co tahan lama dan cocok untuk proyek
-      budidaya ikan saya. Proses pengirimannya aman dan terjamin.
+      Saya membeli kolam terpal dari kolam.bangunan.co untuk proyek perikanan,
+      dan hasilnya sangat memuaskan. Kolamnya berkualitas dan proses
+      instalasinya cepat.
+    response: >-
+      Terima kasih atas kepercayaannya! Kami senang dapat menyediakan kolam
+      terpal berkualitas untuk proyek perikanan Anda.
+    rating: 4
+  - avatar: /images/admin/avatar2.png
+    name: Diah
+    message: >-
+      Saya sangat terbantu dengan layanan kolam.bangunan.co. Kolam terpal yang
+      saya pilih kokoh dan sesuai dengan kebutuhan saya.
+    response: >-
+      Kami sangat menghargai ulasan Anda. Senang mendengar bahwa Anda puas
+      dengan kolam terpal dari kami.
+    rating: 5
+  - avatar: /images/admin/avatar3.png
+    name: Toni
+    message: >-
+      Kolam terpal dari kolam.bangunan.co tahan lama dan cocok untuk usaha
+      budidaya ikan saya. Proses pengirimannya cepat dan lancar.
     response: >-
       Kami senang bisa memenuhi kebutuhan Anda! Terima kasih atas
       kepercayaannya.
     rating: 4
   - avatar: /images/admin/avatar4.png
-    name: Ari
+    name: Andi
     message: >-
-      Kolam terpal dari kolam.bangunan.co tahan lama dan sesuai dengan kebutuhan
-      budidaya ikan saya.
+      Kolam terpal dari kolam.bangunan.co berkualitas dan sesuai dengan
+      kebutuhan budidaya ikan saya.
     response: >-
       Senang mendengar Anda puas dengan kolam terpal kami. Terima kasih atas
       kepercayaannya!
     rating: 4
   - avatar: /images/admin/avatar5.png
-    name: Lina
+    name: Nur
     message: >-
-      Pelayanan kolam.bangunan.co hebat. Kolam terpal yang saya beli berkualitas
-      tinggi dan sesuai dengan harapan saya.
+      Saya puas dengan layanan dari kolam.bangunan.co. Kolam terpalnya
+      berkualitas dan sesuai dengan kebutuhan saya.
     response: >-
       Kami sangat menghargai ulasan Anda. Terima kasih telah mempercayakan
       proyek Anda kepada kami!
     rating: 4
   - avatar: /images/admin/avatar6.png
-    name: Deni
+    name: Toni
     message: >-
       Saya senang dengan kolam terpal dari kolam.bangunan.co. Layanan
       pengirimannya efisien dan sesuai dengan kebutuhan proyek saya.
     response: >-
-      Kami senang mendengar bahwa Anda puas dengan produk kolam terpal kami.
+      Kami gembira mendengar bahwa Anda puas dengan produk kolam terpal kami.
       Terima kasih atas ulasannya!
     rating: 4
