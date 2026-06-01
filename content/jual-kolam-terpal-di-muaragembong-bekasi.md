@@ -1,6 +1,6 @@
 ---
 title: Jual Kolam Terpal di Muaragembong Bekasi
-date: '2025-06-01'
+date: '2026-06-01'
 categories:
   - harga
 description: >-
